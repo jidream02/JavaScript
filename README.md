@@ -1,1 +1,1 @@
-# JavaScript
+# Gapbasov Yerassyl
